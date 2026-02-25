@@ -2,7 +2,7 @@
 **Junior SOC Analyst | Security Operations | DFIR-Oriented**
 
 Bengaluru, India · Open to Relocation · Remote OK  
-📧 rahulroxx2002@gmail.com  
+📧 rahulraom2002@gmail.com  
 🔗 LinkedIn: https://www.linkedin.com/in/rahul-rao-m  
 
 ---
